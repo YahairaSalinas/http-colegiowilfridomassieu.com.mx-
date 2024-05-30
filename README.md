@@ -1,1 +1,1 @@
-# http-colegiowilfridomassieu.com.mx-
+# http://colegiowilfridomassieu.com.mx/
